@@ -1,7 +1,9 @@
 # Good Habits
 # https://www.youtube.com/watch?v=I72uD8ED73U
+# https://www.youtube.com/watch?v=juU0sPBdLtE
+# https://www.youtube.com/watch?v=mB0EBW-vDSQ
 
-
+# find Nieche - https://www.youtube.com/watch?v=Yh5gcLG6C3Q
 
 
 
